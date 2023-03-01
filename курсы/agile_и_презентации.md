@@ -1,4 +1,4 @@
-agile (скриншоты) - https://docs.google.com/document/d/1RM4gEXJhcPVJCunyxalX9uZgbVdqpaPbNS1a_BlI2YQ/edit?usp=sharing  
+agile (скриншоты) - https://docs.google.com/document/d/10tigqbi0hj7PX9xg4rXRle_i724vHYUtH7IHT5oj5og/edit?usp=drivesdk
 
 agile (не сохранилось) - https://docs.google.com/document/d/1eGyzABDP9r-Ujk6HXKwbX1hTuHmf-XAa/edit?usp=sharing&ouid=110953982439409485788&rtpof=true&sd=true 
 
